@@ -1,4 +1,4 @@
-## ***Taze açılmış hesaplardır tanesi 10 TL. +90lı Türkiye numarası ile kayıt olunmuş, telefon onaylı hesaplardır. Hesaplar hiç kullanılmamış size özeldir, ilk ve son sahibi olacaksınız.***
+## ***Taze açılmış hesaplardır tanesi 15 TL. +90lı Türkiye numarası ile kayıt olunmuş, telefon onaylı hesaplardır. Hesaplar hiç kullanılmamış size özeldir, ilk ve son sahibi olacaksınız.***
 
   
 **İçindeki Kampanyalar:**  
